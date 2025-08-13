@@ -1,0 +1,1 @@
+This general assembly tackled also about different events and organizations. CS Guild, Student Community Day, Student Hub, AWS Builder Cards. They also introduced Guildie which is not AI generated but it is made by DIA Students. They also tackled about ADNU Magis Technology and Business also the Ignite Incubation Program Cohort 2.
